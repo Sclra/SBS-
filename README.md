@@ -1,3 +1,2 @@
 # SBS-
-lets fckn go
-salaaam
+bardia mikhad append kone be read me
